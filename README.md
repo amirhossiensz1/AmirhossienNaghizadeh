@@ -24,4 +24,4 @@
 ---
 
 📫 **ارتباط با من:**  
-[LinkedIn](https://www.linkedin.com/in/amir-hossien-naghizadeh-458938121) | [GitHub](https://github.com/amirhossiennaghi)  
+[LinkedIn](https://www.linkedin.com/in/amir-hossien-naghizadeh?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BtJ%2BC24ZhRleWwM4IgIT6Bw%3D%3D) | [GitHub](https://github.com/amirhossiensz1)  
